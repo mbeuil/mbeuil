@@ -1,1 +1,1 @@
-![Maxime BEUIL](https://i.imgur.com/75dEkD6.png)
+![Maxime BEUIL](https://i.imgur.com/3N8Ugh8.png)
