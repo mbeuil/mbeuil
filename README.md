@@ -1,1 +1,1 @@
-![from_url](https://i.imgur.com/3N8Ugh8.png)
+![from_assets](https://github.com/mbeuil/mbeuil/blob/master/assets/MB-profile-picture.png)
